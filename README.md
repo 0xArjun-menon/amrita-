@@ -1,2 +1,0 @@
-# amrita-
-study
